@@ -8,3 +8,18 @@
 <p align="center"><strong>﹒    ave  ﹕☆</strong></p>
 <p align="center"><strong>﹟    19  ·  any prnns</strong></p>
 <p align="center"><strong>:   ᯓ intj-t !  ﹐filipino</strong></p>
+
+&nbsp;
+
+&nbsp;
+
+<h1 align="center"><strong><em>for pony town !!</em></strong></h1>
+
+&nbsp;
+
+<p align="center"><strong>♡   .     please don't copy my skins</strong></p>
+<p align="center"><strong>ᛝ     whisper to interact      ◞      read byi   !!</strong></p>
+
+&nbsp;
+
+<h1 align="center"><strong><em>links !!</em></strong></h1>

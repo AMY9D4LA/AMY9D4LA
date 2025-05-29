@@ -13,6 +13,10 @@
 
 &nbsp;
 
+<p align="center">
+    <img src="https://i.postimg.cc/9FsRqrmN/blur-edges.png" alt="Description" width="500">
+</p>
+
 <h1 align="center"><strong><em>for pony town !!</em></strong></h1>
 
 &nbsp;

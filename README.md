@@ -17,12 +17,32 @@
     <img src="https://i.postimg.cc/9FsRqrmN/blur-edges.png" alt="Description" width="500">
 </p>
 
-<h1 align="center"><strong><em>for pony town !!</em></strong></h1>
-
 &nbsp;
 
 <p align="center"><strong>♡   .     please don't copy my skins</strong></p>
 <p align="center"><strong>ᛝ     whisper to interact      ◞      read byi   !!</strong></p>
+
+&nbsp;
+
+<h1 align="center"><strong>INTERESTS !!</strong></h1>
+𓆩♡𓆪 frieren: beyond journey's end
+&nbsp;
+𓆩♡𓆪 blue lock
+&nbsp;
+𓆩♡𓆪 haikyuu!!
+&nbsp;
+𓆩♡𓆪 genshin impact
+&nbsp;
+𓆩♡𓆪 minecraft
+&nbsp;
+𓆩♡𓆪 sky: children of the night
+
+&nbsp;
+
+<h1 align="center"><strong>INTERACT !!</strong></h1>
+<p>ᯓ★ if you're friends of my friends!</p>
+<p>ᯓ★ if your interests align with mine!</p>
+<p>ᯓ★ if you're interested</p>
 
 &nbsp;
 

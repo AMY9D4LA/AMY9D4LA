@@ -7,4 +7,4 @@
 </p>
 <p align="center"><strong>﹒    ave  ﹕☆</strong></p>
 <p align="center"><strong>﹟    19  ·  any prnns</strong></p>
-<p align="center"><strong>:   ᯓ intj-t !  ﹐</strong></p>
+<p align="center"><strong>:   ᯓ intj-t !  ﹐filipino</strong></p>

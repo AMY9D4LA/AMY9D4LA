@@ -5,3 +5,6 @@
 <p align="center">
     <img src="https://i.postimg.cc/9Qcn01kF/Untitled282-20250529171718-fliter-x-rays-channel-all-mode-normal.png" alt="Description" width="500">
 </p>
+<p align="center"><strong>﹒    ave  ﹕☆</strong></p>
+<p align="center"><strong>﹟    19  ·  any prnns</strong></p>
+<p align="center"><strong>:   ᯓ intj-t !  ﹐</strong></p>

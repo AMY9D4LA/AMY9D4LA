@@ -44,6 +44,16 @@
 𓆩♡𓆪 cookie run kingdom
 &nbsp;
 𓆩♡𓆪 music in general
+&nbsp;
+𓆩♡𓆪 attack on titan
+&nbsp;
+𓆩♡𓆪 sonic / sega franchise
+&nbsp;
+𓆩♡𓆪 steven universe
+&nbsp;
+𓆩♡𓆪 jujutsu kaisen
+&nbsp;
+𓆩♡𓆪 etc...
 
 &nbsp;
 

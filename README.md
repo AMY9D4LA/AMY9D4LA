@@ -58,10 +58,25 @@
 &nbsp;
 
 <h1 align="center"><strong>INTERACT !!</strong></h1>
-<p>ᯓ★ if you're friends of my friends!</p>
-<p>ᯓ★ if your interests align with mine!</p>
-<p>ᯓ★ if you're interested</p>
+ᯓ★ if you're friends of my friends!
+&nbsp;
+ᯓ★ if your interests align with mine!
+&nbsp;
+ᯓ★ if you're interested to know more about me
 
 &nbsp;
 
-<h1 align="center"><strong><em>links !!</em></strong></h1>
+<h1 align="center"><strong>DO NOT INTERACT !!</strong></h1>
+× ... racist
+&nbsp;
+× ... anti lgbtq+
+&nbsp;
+× ... zionists
+&nbsp;
+× ... sexist
+&nbsp;
+× ... ableist
+
+&nbsp;
+
+<h1 align="center"><strong>LINKS !!</strong></h1>

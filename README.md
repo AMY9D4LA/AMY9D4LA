@@ -14,7 +14,7 @@
 &nbsp;
 
 <p align="center">
-    <img src="https://i.postimg.cc/9FsRqrmN/blur-edges.png" alt="Description" width="500">
+    <img src="https://i.postimg.cc/dts4wXy4/blur-edges-fliter-x-rays-channel-all-mode-normal.png" alt="Description" width="500">
 </p>
 
 &nbsp;
@@ -36,6 +36,14 @@
 𓆩♡𓆪 minecraft
 &nbsp;
 𓆩♡𓆪 sky: children of the night
+&nbsp;
+𓆩♡𓆪 honkai: star rail
+&nbsp;
+𓆩♡𓆪 pjsekai / ensekai
+&nbsp;
+𓆩♡𓆪 cookie run kingdom
+&nbsp;
+𓆩♡𓆪 music in general
 
 &nbsp;
 
